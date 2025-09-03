@@ -1,2 +1,0 @@
-# Jeehan-pandi
-Business card
